@@ -7,7 +7,7 @@ I'm a Web Developer
 
 🌱I'm studying at Thuy Loi university
 
-📫How to reach me: Facebook: https://www.facebook.com/kien.chi.969/
+📫How to reach me: Phone number: 0395579760
 
 🤗Pronouns: He/His
 
