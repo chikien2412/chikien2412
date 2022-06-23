@@ -7,7 +7,7 @@ I'm a Web Developer
 
 🌱 I'm currently studying for a bachelor's degree in Information Technology at the Thuy Loi University
 
-📫 How to reach me: My contact: chikien2412@gmail.com
+📫 How to reach me: My email: chikien2412@gmail.com
 
 🤗 Pronouns: He/His
 
