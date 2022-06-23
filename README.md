@@ -7,7 +7,7 @@ I'm a Web Developer
 
 🌱 I'm studying at Thuy Loi university
 
-📫 How to reach me: Phone number: 0395579760
+📫 How to reach me: My contact: chikien2412@gmail.com
 
 🤗 Pronouns: He/His
 
