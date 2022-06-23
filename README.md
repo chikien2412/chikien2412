@@ -5,7 +5,7 @@ I'm a Web Developer
 
 👀 I am seeking an internship
 
-🌱 I'm studying at Thuy Loi university
+🌱 I'm currently studying for a bachelor's degree in Information Technology at the Thuy Loi University
 
 📫 How to reach me: My contact: chikien2412@gmail.com
 
