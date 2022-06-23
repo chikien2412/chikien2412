@@ -1,10 +1,16 @@
 # 💫About Me :
 Hi, I'm Kien 👋
+
 I'm a Web Developer
+
 👀I am seeking an internship
+
 🌱I'm studying at Thuy Loi university
+
 📫How to reach me: Facebook: https://www.facebook.com/kien.chi.969/
+
 🤗Pronouns: He/His
+
 ⚡Fun fact: I quite like pink
 
 ## 🌐Socials
