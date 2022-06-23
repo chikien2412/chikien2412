@@ -3,15 +3,15 @@ Hi, I'm Kien 👋
 
 I'm a Web Developer
 
-👀I am seeking an internship
+👀 I am seeking an internship
 
-🌱I'm studying at Thuy Loi university
+🌱 I'm studying at Thuy Loi university
 
-📫How to reach me: Phone number: 0395579760
+📫 How to reach me: Phone number: 0395579760
 
-🤗Pronouns: He/His
+🤗 Pronouns: He/His
 
-⚡Fun fact: I quite like pink
+⚡ Fun fact: I quite like pink
 
 ## 🌐 Socials
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/kien.chi.969/) 
